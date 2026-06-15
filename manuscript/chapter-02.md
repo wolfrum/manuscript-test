@@ -1,1 +1,1 @@
-This is a new chapter on the new branc
+This is a new chapter on the new branch we created.
