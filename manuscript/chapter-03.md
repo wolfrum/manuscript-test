@@ -17,7 +17,7 @@ There was no sense in dancing around it. "I'm doing research for a story about t
 
 "I don't have a concrete angle on the story yet."
 
-"I see," Nadia replied. "I'll do my best to provide some context. Follow me."
+"I see," Nadia replied. "I'll do my best to provides some context. Follow me."
 
 Brendan followed Nadia down the corridor. She stopped at the display of a small figurine slightly longer in length than Brendan's hand.
 
